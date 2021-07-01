@@ -1,0 +1,1 @@
+O curso está maravilhoso, abrindo a minha mente para muita coisa nova e empolgante.
